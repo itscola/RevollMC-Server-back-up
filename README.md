@@ -1,5 +1,5 @@
 # RevollMC-Server-back-up
 All data of my minecraft server for downloading.
 
-Goodbye everyone, I need to study very hard.        
+Goodbye, everyone, I need to study very hard for my dreams.        
 Waiting for me two years later, Tsinghua University.
